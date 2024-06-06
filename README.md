@@ -1,2 +1,1 @@
-# Welcome to the childhood stories
-
+I passed him and continued in the dark forest
